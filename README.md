@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @AlanisMaria
-- 👀 I’m interested in química e biologia
-- 🌱 I’m currently learning programação em html
+- ⭐ Aprendendo a programar em html
+- 💫 Cursando o segundo ano do ensino médio
+- 💥 Cursando o ensino médio técnico em desenvolvimento de sistemas
 
 <!---
 AlanisMaria/AlanisMaria is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
