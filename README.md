@@ -20,3 +20,5 @@ You can click the Preview link to take a look at your changes.
 - ⭐ Aprendendo a programar em html
 - 💫 Cursando o segundo ano do ensino médio
 - 💥 Cursando o ensino médio técnico em desenvolvimento de sistemas
+
+<img align="center" alt="" scr="https://github.com/user-attachments/assets/469452e0-a4bb-46ed-a003-a4c1f5b044e4">
