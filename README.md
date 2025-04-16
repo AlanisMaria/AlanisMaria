@@ -9,5 +9,5 @@
 ⋆˙⋆｡°✩ ⋆⁺｡˚⋆˙‧₊✩₊‧˙⋆˚｡⁺⋆ ✩°｡⋆
 
 
-![1000032104](https://github.com/user-attachments/assets/97210c50-3d6c-4453-ab6c-2cede9a8c28b)
 
+![_](https://github.com/user-attachments/assets/33e3e703-b306-4cc5-a069-cd03b36e768c)
