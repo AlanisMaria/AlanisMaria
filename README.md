@@ -11,7 +11,7 @@
 ✯𝕴𝖓𝖊𝖋𝖋𝖆𝖇𝖑𝖊 𝖍𝖚𝖘𝖇𝖆𝖓𝖉𝖘✯
 
 
-![_ (1)](https://github.com/user-attachments/assets/8c3e56dc-4d17-4119-9ac4-96db0c58c70e)
+![_](https://github.com/user-attachments/assets/ccf7efe9-f1d2-4efe-9a63-0a70c58e3bb2)
 
 
 . ݁₊ ⊹ . ݁˖ . ݁. ݁₊ ⊹ . ݁˖ . ݁. ݁₊ ⊹ . ݁˖ . ݁
