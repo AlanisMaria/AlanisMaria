@@ -10,9 +10,9 @@
 
 ✯𝕴𝖓𝖊𝖋𝖋𝖆𝖇𝖑𝖊 𝖍𝖚𝖘𝖇𝖆𝖓𝖉𝖘✯
 
+![_](https://github.com/user-attachments/assets/48135765-7982-4cde-8187-710118303e7b)
 
-![_](https://github.com/user-attachments/assets/20998585-5![_](https://github.com/user-attachments/assets/0eb3fdd9-e5b5-4c48-ae90-1e261530eab3)
-348-4840-bbf6-b84760faf127)
+
 
 
 . ݁₊ ⊹ . ݁˖ . ݁. ݁₊ ⊹ . ݁˖ . ݁. ݁₊ ⊹ . ݁˖ . ݁
