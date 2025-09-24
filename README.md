@@ -11,8 +11,8 @@
 ✯𝕴𝖓𝖊𝖋𝖋𝖆𝖇𝖑𝖊 𝖍𝖚𝖘𝖇𝖆𝖓𝖉𝖘✯
 
 
+![https___64_media tumblr com_dd7bd5331786dfaad9ccdd3d205baecc_0cdfe0e812169590-31_s2048x3072_73e50bbb554646ae26b4b722fd012e567eaf480f](https://github.com/user-attachments/assets/f11e95bd-b823-4fe9-985d-3a915abeff03)
 
-![_](https://github.com/user-attachments/assets/ccf7efe9-f1d2-4efe-9a63-0a70c58e3bb2)
 
 
 . ݁₊ ⊹ . ݁˖ . ݁. ݁₊ ⊹ . ݁˖ . ݁. ݁₊ ⊹ . ݁˖ . ݁
